@@ -1,1 +1,1 @@
-# gogoblesan-eps-1 url youtube: https://youtu.be/YDcmSjxYyP0 
+# tugas gogoblesan-eps-1 selesai coy
